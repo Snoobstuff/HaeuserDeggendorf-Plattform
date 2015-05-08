@@ -1,0 +1,1 @@
+# HaeuserDeggendorf-Plattform
